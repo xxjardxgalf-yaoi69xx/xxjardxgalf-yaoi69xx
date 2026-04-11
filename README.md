@@ -2,21 +2,21 @@
 
 so maybe maybe not youve seen me around (my peak (or atleast in the safe server) was around 2024-early/mid 2025)
 
-my github user has changed a lot i literally dont even remember what it was called before
+my github user has changed a lot i literally dont even remember what it was called before (i think cheesee at some point but the alias died)
 
 im not getting rid of my current user no one will be cool enouhg 2 own this
 
 ## pt info
 
-i am rarely on pony town lately (shhh you didnt see me shh shhhhhh) i just play with friends hi @pixel8tedfaygo where my wave at
+moved everything to [this rentry](https://rentry.co/amenbreakstheinternet)
+- has a detailed byi + int list go check that out
 
-hangout / gtc frequent or whatever. im a sweat at gtcs ok? ok? ok? also in hangouts agggg i mostly join multifandom ones or lung hangouts hi @quintinkillakitten or what was your github was it @goatgutzupon I FORGOT!!!!
-
-heavy cudcomf + covercomf idgaf if your fat fucking pony covers mine i will be more than joyous and idgaf if you sit behind me because that counts as cuddling to me **#iloveanyinteractions** 
-
-also <ins>do not kiss / dnk and dont hump me and dont do the hearts emote on me</ins> 25/8 i hate it all it reminds me of that guy i fucking hate any other ints are welcome ok sneezes even spit on me i dont CARE!!!! im just chalant for kisses and hearts and humping i hate them with all the fibers of my soul 
-
-ill Block you if you keep doing it even after i said stop because im not 100% evil. unless im already evil i will permablock you so have that as a warning. i do NOT unblock people btw i block freely if you textwall / spam / break my boundaries / say smth weird / are in my dni list / im in your dni list youre going in the pit ok ok? dont try contacting me if i blocked you unless there was a misunderstanding but still theres a 99.9% chance that youll remain blocked
+quick byi:
+- dnkiss
+- dont hump
+- dont cover with text
+- big cudcomf / covercomf
+- w2i means w2i
 
 ## butt fart
 
