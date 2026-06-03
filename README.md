@@ -14,6 +14,8 @@ my github user has changed a lot i literally dont even remember what it was call
 
 im not getting rid of my current user no one will be cool enouhg 2 own this
 
+<sub>i dont have a fetish with gay relationships. i am gay myself and i just like the genre. i feel like clearing this up Sorry im Paranoid 👎👎👎👎👎👎❌❌ also the name was just humorous</sub>
+
 ## pt info
 
 moved everything to [this rentry](https://rentry.co/amenbreakstheinternet)
@@ -27,3 +29,5 @@ quick byi:
 - w2i means w2i
 
 ## removed dni list i will Just block if i feel like it
+
+if you wanna know what pisses me off just check the pt rentry and go to the dni / thin ice part. ill probably do boundaries if i feel like it
