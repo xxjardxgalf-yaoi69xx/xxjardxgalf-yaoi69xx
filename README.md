@@ -1,12 +1,4 @@
-# hi HAPPY PRIDE MONTH 🏳‍🌈🏳‍🌈🏳‍🌈🏳‍🌈🏳‍🌈🏳‍🌈
-
-<p align="center"><img src="https://i.postimg.cc/qBZ6vFW8/var2.png"></p>
-
-ART MADE BY ME INSPIRED BY [SPRUNG!](https://music.youtube.com/watch?v=x8Ih8MPzMZo&si=1NCe9rPeDiF22yZQ) BY EMOTICON AND ROTTEEN OK. [jard and galf wish you a merry pride month](https://www.tumblr.com/alekay-official/818278895580332032?source=share) 💝💝
-
-expect me to post more art soon probably in a separate repository but whatever. 1tb of jalf Incoming
-
-# ok deadass
+# hi
 
 so maybe maybe not youve seen me around (my peak (or atleast in the safe server) was around 2024-early/mid 2025)
 
