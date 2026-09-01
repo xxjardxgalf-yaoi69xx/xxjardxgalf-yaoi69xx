@@ -11,5 +11,9 @@
   [rentry/byi](https://rentry.co/amenbreakstheinternet) ${\color{#421e37}\textsf{.}}$ [atabook](https://jardicus.atabook.org) ${\color{#421e37}\textsf{.}}$ int + dni (wip)
   
   ![](https://i.postimg.cc/HsTQ1Lzk/text(1).gif)
+
+  ${\color{#421e37}\textsf{please view my rentries with an adblocker c-: i dont support matt}}$
+
+  ${\color{#421e37}\textsf{i use ublock origin (firefox browser)}}$
   
 </div>
