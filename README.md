@@ -12,7 +12,7 @@
   
   ![](https://i.postimg.cc/HsTQ1Lzk/text(1).gif)
 
-  ${\color{#421e37}\textsf{please view my rentries with an adblocker c-: i dont support matt}}$
+  ${\color{#421e37}\textsf{please view my rentries with an adblocker <:3c i dont support matt}}$
 
   ${\color{#421e37}\textsf{i use ublock origin (firefox browser)}}$
   
